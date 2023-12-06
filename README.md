@@ -1,1 +1,1 @@
-Read News here -> [Click Here](https://64240f26d369af0e9f9691cc--genuine-druid-fb1175.netlify.app/)
+Read News here -> [Click Here](https://6570a5ed2eac0f10924490d6--snazzy-valkyrie-207704.netlify.app/)
